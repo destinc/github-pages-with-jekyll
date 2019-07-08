@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Destin Coleman
 
-I'm glad you are here. I plan to talk about ...
+Let's look at what I've done
